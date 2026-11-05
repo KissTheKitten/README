@@ -1,0 +1,1 @@
+Personal Banking Advisor transitioning into Software Quality Engineering. Experienced in problem resolution, process compliance, quality control, and software development through Java coursework. Interested in software testing, quality assurance, and continuous improvement.
